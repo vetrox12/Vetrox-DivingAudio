@@ -2,4 +2,4 @@
 
 https://discord.gg/cgxv3TJspR
 
-https://vimeo.com/1052658837?share=copy
+https://vimeo.com/1052658837?share=copy شرح
